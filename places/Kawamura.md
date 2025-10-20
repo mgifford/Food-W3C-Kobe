@@ -1,9 +1,10 @@
-# Kawamura
+# Bifteck Kawamura Sannomiya Flagship Restaurant
 
 **Category:** Kobe Beef Restaurant  
 **Neighborhood:** Sannomiya  
-**Address:** 2-1-21 Kitanagasadori, Chuo-ku, Kobe-shi, Hyogo 650-0002, Japan  
-**Distance from Venue:** ~15 min (Port Liner to Sannomiya + 5 min walk)  
+**Address:** 4 Chome-5-13 Kanocho, Chuo Ward, Kobe, Hyogo 650-0001, Japan
+**Website:** https://www.bifteck.co.jp/restaurant/sannomiya-main/
+**Distance from Venue:** ~10min car, 29min bus
 
 ## Why it's exceptional
 

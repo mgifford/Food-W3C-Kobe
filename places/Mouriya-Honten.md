@@ -2,8 +2,9 @@
 
 **Category:** Kobe Beef Restaurant (Historic)  
 **Neighborhood:** Sannomiya  
-**Address:** 2-1-17 Shimoname-dori, Chuo-ku, Kobe-shi, Hyogo 650-0011, Japan  
-**Distance from Venue:** ~15 min (Port Liner to Sannomiya + 5 min walk)  
+**Address:** 〒650-0011 Hyogo, Kobe, Chuo Ward, Shimoyamatedori, 2 Chome−1−17 モーリヤビル
+
+**Distance from Venue:** ~13min car, 31 min bus  
 
 ## Why it's exceptional
 
