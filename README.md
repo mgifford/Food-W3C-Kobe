@@ -2,7 +2,7 @@
 
 Headed to Kobe, Japan for [W3C TPAC 2025](https://www.w3.org/2025/11/TPAC/) November 10-14th?  
 
-Here's a community-curated list of food and drink spots near the [Kobe International Conference Center](https://maps.google.com/maps/place/Kobe+International+Conference+Center) at 6-9-1 Minatojima-nakamachi, Chuo-ku, Kobe.   
+Here's a community-curated list of food and drink spots near the [Kobe International Conference Center](https://maps.app.goo.gl/Xb9PdN3oHECmhdiY9) at 6-9-1 Minatojima-nakamachi, Chuo-ku, Kobe.   
 
 If you've got a favorite café, bar, restaurant, or sight near the venue, please add it! The goal is to make it easier for folks attending TPAC to discover excellent Kobe cuisine, especially the famous Kobe beef, authentic ramen, and local specialties.  
 
@@ -22,14 +22,16 @@ If you've got a favorite café, bar, restaurant, or sight near the venue, please
 If you only have time for a few experiences during TPAC:  
 
 ### Kobe Beef (Choose One)
-- [Kawamura](places/Kawamura.md) - World's finest Kobe beef restaurant where Chef Kawamura personally selects each A5 grade cut
-- [Steak Misono](places/Steak-Misono.md) - The birthplace of teppanyaki with authentic Kobe beef and historic atmosphere  
+- [Bifteck Kawamura Sannomiya](places/Bifteck-Kawamura-Sannomiya.md) - World's finest Kobe beef restaurant where Chef Kawamura personally selects each A5 grade cut
+- [Misono Kobe Main Restaurant](places/Misono-Kobe-Main-Restaurant.md) - The birthplace of teppanyaki with authentic Kobe beef and historic atmosphere  
 - [Mouriya Honten](places/Mouriya-Honten.md) - Historic steakhouse since 1885 with more accessible pricing
+- [Kobe Beef Daichi](places/Kobe-Beef-Daichi.md) - Authentic Kobe beef in historic Motomachi district
+- [Kobe Beef KOJYU](places/Kobe-Beef-KOJYU.md) - Premium Kobe beef dining for important business meals
 
 ### Quick & Essential
 - [Kobe Port Tower](places/Kobe-Port-Tower.md) - Iconic red tower just 5 minutes walk from venue with stunning harbor views
 - [Meriken Park](places/Meriken-Park.md) - Beautiful waterfront park for morning jogs and walking meetings (8 min walk)
-- [Ganko Ramen](places/Ganko-Ramen.md) - Authentic tonkotsu ramen perfect for quick conference meals
+- [Kōbe Shoyu-kei Ramen](places/Kobe-Shoyu-kei-Ramen.md) - Authentic soy sauce ramen perfect for quick conference meals
 
 ### Coffee & Work Spots
 - [Starbucks Reserve Kobe](places/Starbucks-Reserve-Kobe.md) - Premium coffee roastery with harbor views and excellent WiFi (10 min walk)
@@ -37,13 +39,13 @@ If you only have time for a few experiences during TPAC:
 
 ### Western Comfort Food
 - [The Griffon British Pub](places/The-Griffon-British-Pub.md) - Authentic British pub with international expat community
-- [Ristorante Borgo Konishi](places/Ristorante-Borgo-Konishi.md) - Authentic Northern Italian cuisine perfect for business dinners
-- [Pizza da Granza](places/Pizza-da-Granza.md) - Certified Neapolitan pizza great for casual group meals
+- [Jesus Pizza](places/Jesus-Pizza.md) - Local favorite pizza spot great for casual group meals  
+- [2 Bros Pizza](places/2-Bros-Pizza.md) - New York-style pizza in relaxed atmosphere
 
 ### Districts & Experiences  
 - [Sannomiya District](places/Sannomiya-District.md) - Main commercial hub with dining, shopping, and nightlife (13 min via Port Liner)
 - [Kitano Foreign District](places/Kitano-Foreign-District.md) - Historic Western houses from the 1800s with beautiful harbor views
-- [Sake Bar Yamashina](places/Sake-Bar-Yamashina.md) - Local Nada district sake with expert guidance for evening networking
+- [Sake Bar Torikizoku](places/Sake-Bar-Yamashina.md) - Authentic Japanese izakaya experience with affordable drinks for evening networking
 
 ---
 

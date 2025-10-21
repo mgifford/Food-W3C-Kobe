@@ -1,9 +1,9 @@
 # Kitano Foreign District
 
 **Category:** Historic Attraction & Neighborhood  
-**Neighborhood:** Kitano  
+**Location:** Historic hillside district north of central shopping area with Victorian-era houses  
 **Address:** Kitano-cho, Chuo-ku, Kobe-shi, Hyogo (multiple historic houses)  
-**Distance from Venue:** ~20 min (Port Liner to Sannomiya + 10 min walk uphill)  
+**Transportation:** 15-minute taxi ride or 50-minute walk from conference venue (recommend taxi due to uphill climb)  
 
 ## Why it's a must-see
 

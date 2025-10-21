@@ -1,9 +1,9 @@
 # Kobe Port Tower
 
 **Category:** Sight/Attraction  
-**Neighborhood:** Meriken Park (Port Island area)  
+**Location:** Waterfront park district, iconic red tower visible from conference center  
 **Address:** 5-5 Hatobacho, Chuo-ku, Kobe-shi, Hyogo 650-0042, Japan  
-**Distance from Venue:** ~5 min walk  
+**Transportation:** 5-minute walk from conference venue  
 
 ## Why it's a must-see
 

@@ -1,9 +1,9 @@
 # Sannomiya District
 
 **Category:** Shopping & Dining District  
-**Neighborhood:** Central Kobe  
+**Location:** Central Kobe's main commercial hub - the "Times Square of Kobe"  
 **Address:** Sannomiya Station area, Chuo-ku, Kobe-shi, Hyogo  
-**Distance from Venue:** ~13 min (Port Liner direct connection)  
+**Transportation:** 13-minute train ride from conference venue or 20-minute taxi ride  
 
 ## Why it's essential for TPAC
 

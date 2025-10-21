@@ -1,9 +1,9 @@
 # Meriken Park
 
 **Category:** Waterfront Park & Walking Area  
-**Neighborhood:** Port Island/Harborland  
+**Location:** Scenic waterfront between conference center and city center  
 **Address:** Hatobacho, Chuo-ku, Kobe-shi, Hyogo 650-0042, Japan  
-**Distance from Venue:** ~8 min walk  
+**Transportation:** 8-minute walk from conference venue  
 
 ## Why it's perfect for TPAC
 
