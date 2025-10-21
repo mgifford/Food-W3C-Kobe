@@ -5,7 +5,7 @@
 **Address:** 1-4-3 Sannomiyacho, Chuo Ward, Kobe, Hyogo 650-0021, Japan (Clefy Sannomiya 2F)  
 **[Website](https://store.starbucks.co.jp/detail-4504/)**  
 **[Google Maps](https://maps.app.goo.gl/VRfQSc4aP8wZ56eh8)**  
-**Transportation:** 6-minute taxi ride or 25-minute walk from conference venue  
+**Transportation:** 9-minute taxi, 55-minute subway (Portliner) or 55-minute walk from conference venue  
 
 ## Why it's exceptional
 
