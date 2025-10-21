@@ -8,6 +8,8 @@ If you've got a favorite café, bar, restaurant, or sight near the venue, please
 
 **W3C TPAC 2025** is a five-day hybrid meeting bringing together W3C's technical community for working group meetings, breakout sessions, and networking. The conference features participants from the global web standards community working on the future of the web.
 
+Take a look at the **[W3C Restaurants Wiki](https://www.w3.org/wiki/TPAC/2025/Restaurants)** which was developed at about the same time as this, with a very similar goal.
+
 **Event Highlights:**
 - **November 10-14th**: Working Group meetings, breakout sessions, and technical discussions
 - **Kobe Developer Meetup**: November 10th at Anchor Kobe  
