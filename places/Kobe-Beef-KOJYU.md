@@ -5,7 +5,7 @@
 **Address:** 2-12-6 Kitanagasadori, Chuo Ward, Kobe, Hyogo 650-0012, Japan (K Building 2F)  
 **[Website](https://www.koubegyuu.com/koujyu/menu/131/)**  
 **[Google Maps](https://maps.app.goo.gl/88uG6HrXVJwBxcvLA)**  
-**Transportation:** 8-minute taxi ride or 30-minute walk from conference venue  
+**Transportation:** 12-minute taxi, 30-minute subway (Portliner) or 60-minute walk from conference venue  
 
 ## Why it's exceptional
 
