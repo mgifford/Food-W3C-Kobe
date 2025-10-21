@@ -5,7 +5,7 @@
 **Address:** 1-13-7 Nakayamatedori, Chuo Ward, Kobe, Hyogo 650-0004, Japan (Kobe Yamashita Building)  
 **[Website](https://old-england.bar/food)**  
 **[Google Maps](https://maps.app.goo.gl/xB1nfbcFHk5MJVvW6)**  
-**Transportation:** 12-minute taxi ride or 45-minute walk from conference venue  
+**Transportation:** 10-minute taxi, 26-minute subway (Portliner) or 45-minute walk 
 
 ## Why it's exceptional
 
