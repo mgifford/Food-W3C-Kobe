@@ -99,8 +99,7 @@ Tips:
 
 ## History
 
-I used this at the [ETHCON25 conference]((https://github.com/mgifford/EHRCON25-Barcelona) in Barcelona
-
+I used this at the [ETHCON25 conference](https://github.com/mgifford/EHRCON25-Barcelona) in Barcelona
 
 But it is based on an idea by Shirley Bailes from the [Linux Foundation's Open Source Summit Europe](https://github.com/shirleybailes/oss-europe-amsterdam-foo).
 d
