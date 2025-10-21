@@ -5,7 +5,7 @@
 **Address:** 2-18-8 Nakayamatedori, Chuo Ward, Kobe, Hyogo 650-0004, Japan  
 **[Instagram](https://instagram.com/jesuspizzakobe)**  
 **[Google Maps](https://maps.app.goo.gl/2JapHiMLNvZaF4Ks9)**  
-**Transportation:** 12-minute taxi ride or 45-minute walk from conference venue  
+**Transportation:** 12-minute taxi, 30-minute subway (Portliner) or 70-minute walk from conference venue  
 
 ## Why it's exceptional
 
