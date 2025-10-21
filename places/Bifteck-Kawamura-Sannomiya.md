@@ -4,7 +4,7 @@
 **Location:** Central Kobe shopping district, near major train stations  
 **Address:** 4 Chome-5-13 Kanocho, Chuo Ward, Kobe, Hyogo 650-0001, Japan  
 **[Website](https://www.bifteck.co.jp/restaurant/sannomiya-main/)**  
-**Transportation:** 8-minute taxi ride or 35-minute walk from conference venue
+**Transportation:** 15-minute taxi, 22-minute subway (portliner) or 60-minute walk
 
 ## Why it's exceptional
 
