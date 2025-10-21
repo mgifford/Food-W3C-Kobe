@@ -5,7 +5,7 @@
 **Address:** 2-11-27 Sannomiyacho, Chuo Ward, Kobe, Hyogo 650-0021, Japan  
 **[Tabelog](https://tabelog.com/hyogo/A2801/A280101/28065286/)**  
 **[Google Maps](https://maps.app.goo.gl/PvHMeP3XJnQ3VdJN9)**  
-**Transportation:** 8-minute taxi ride or 25-minute walk from conference venue  
+**Transportation:** 9-minute taxi, 26-minute subway (Portliner) or 60-minute walk
 
 ## Why it's exceptional
 
