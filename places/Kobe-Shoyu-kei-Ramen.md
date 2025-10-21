@@ -5,7 +5,7 @@
 **Address:** 4-2-20 Kitanagasadori, Chuo Ward, Kobe, Hyogo 650-0012, Japan (Kotobuki Building)  
 **[Instagram](https://www.instagram.com/kobe.shouyukei/)**  
 **[Google Maps](https://maps.app.goo.gl/bp1BMTbvwYFf99Tr6)**  
-**Transportation:** 8-minute taxi ride or 30-minute walk from conference venue  
+**Transportation:** 10-minute taxi, 34-minute subway or 60-minute walk from conference venue  
 
 ## Why it's exceptional
 
