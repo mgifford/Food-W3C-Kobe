@@ -5,7 +5,7 @@
 **Address:** 3-2-2 Nakayamatedori, Chuo Ward, Kobe, Hyogo 650-0004, Japan  
 **[Website](https://yoyaku-sushi-toshi.com/)**  
 **[Google Maps](https://maps.app.goo.gl/bQNEDjNq9FvFyXmo7)**  
-**Transportation:** 12-minute taxi ride or 45-minute walk from conference venue  
+**Transportation:** 11-minute taxi ride, 26 minute subway (portliner) or 1-hour walk 
 
 ## Why it's exceptional
 
