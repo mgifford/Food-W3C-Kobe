@@ -5,7 +5,7 @@
 **Address:** 1-31-35 Kitanagasadori, Chuo Ward, Kobe, Hyogo 650-0012, Japan  
 **[Website](https://minatokensannomiyakoukashita.foodre.jp/)**  
 **[Google Maps](https://maps.app.goo.gl/s22Dsifx4XcT8JK76)**  
-**Transportation:** 8-minute taxi ride or 30-minute walk from conference venue  
+**Transportation:** 13-minute taxi, 25-minute subway (Portliner) or 60-minute walk
 
 ## Why it's exceptional
 
