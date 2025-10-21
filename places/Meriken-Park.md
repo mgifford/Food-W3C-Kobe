@@ -3,7 +3,7 @@
 **Category:** Waterfront Park & Walking Area  
 **Location:** Scenic waterfront between conference center and city center  
 **Address:** Hatobacho, Chuo-ku, Kobe-shi, Hyogo 650-0042, Japan  
-**Transportation:** 8-minute walk from conference venue  
+**Transportation:** 8-minute taxi, 45-minute subway (Portliner), or 60-minute walk
 
 ## Why it's perfect for TPAC
 
