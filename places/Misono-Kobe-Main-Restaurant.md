@@ -5,7 +5,7 @@
 **Address:** 1-1-2 Shimoyamatedori, Chuo Ward, Kobe, Hyogo 650-0011, Japan (Misono Building 7F-8F)  
 **[Website](https://misono.org/)**  
 **[Google Maps](https://maps.app.goo.gl/TvRt24fDVkpYXn978)**  
-**Transportation:** 8-minute taxi ride or 30-minute walk from conference venue  
+**Transportation:** 12-minute taxi, 24-minute subway (Portliner) or 60-minute walk from conference venue  
 
 ## Why it's exceptional
 
