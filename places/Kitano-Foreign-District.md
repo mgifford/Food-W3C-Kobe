@@ -3,7 +3,7 @@
 **Category:** Historic Attraction & Neighborhood  
 **Location:** Historic hillside district north of central shopping area with Victorian-era houses  
 **Address:** Kitano-cho, Chuo-ku, Kobe-shi, Hyogo (multiple historic houses)  
-**Transportation:** 15-minute taxi ride or 50-minute walk from conference venue (recommend taxi due to uphill climb)  
+**Transportation:** 15-minute taxi, 49-minute subway or 75-minute walk from conference venue (recommend taxi due to uphill climb)  
 
 ## Why it's a must-see
 
