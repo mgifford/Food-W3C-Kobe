@@ -5,7 +5,7 @@
 **Address:** 2-7-12 Kitanagasadori, Chuo Ward, Kobe, Hyogo 650-0012, Japan (PMPT Building 2F)  
 **[Tabelog](https://s.tabelog.com/hyogo/A2801/A280101/28026306/)**  
 **[Google Maps](https://maps.app.goo.gl/tBjvaTVV4P2KMmYi8)**  
-**Transportation:** 8-minute taxi ride or 30-minute walk from conference venue  
+**Transportation:** 11-minute taxi, 27-minute subway (Portliner) or 60-minute walk 
 
 ## Why it's exceptional
 
