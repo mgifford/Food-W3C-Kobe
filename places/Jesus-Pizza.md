@@ -3,8 +3,8 @@
 **Category:** Pizza Restaurant  
 **Location:** Nakayamate district, hillside area near foreign quarter  
 **Address:** 2-18-8 Nakayamatedori, Chuo Ward, Kobe, Hyogo 650-0004, Japan  
-**Website:** https://instagram.com/jesuspizzakobe  
-**Maps:** https://maps.app.goo.gl/2JapHiMLNvZaF4Ks9  
+**[Instagram](https://instagram.com/jesuspizzakobe)**  
+**[Google Maps](https://maps.app.goo.gl/2JapHiMLNvZaF4Ks9)**  
 **Transportation:** 12-minute taxi ride or 45-minute walk from conference venue  
 
 ## Why it's exceptional

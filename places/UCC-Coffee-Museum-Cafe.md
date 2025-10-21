@@ -3,8 +3,8 @@
 **Category:** Coffee Shop (Specialty)  
 **Location:** Same island as conference center, short walk along waterfront  
 **Address:** 6-6-2 Minatojima-nakamachi, Chuo-ku, Kobe-shi, Hyogo 650-0046, Japan  
-**Website:** https://www.ucc.co.jp/museum/  
-**Maps:** https://maps.app.goo.gl/cBquzwXZUtBFk1K39  
+**[Website](https://www.ucc.co.jp/museum/)**  
+**[Google Maps](https://maps.app.goo.gl/cBquzwXZUtBFk1K39)**  
 **Transportation:** 12-minute walk or 3-minute taxi ride from conference venue  
 
 ## Why it's exceptional

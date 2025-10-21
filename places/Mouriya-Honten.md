@@ -3,8 +3,8 @@
 **Category:** Kobe Beef Restaurant (Historic)  
 **Location:** Central Kobe shopping district, near major train stations  
 **Address:** 2-1-17 Shimoyamatedori, Chuo-ku, Kobe-shi, Hyogo 650-0011, Japan  
-**Website:** https://www.mouriya.co.jp/head/menu  
-**Maps:** https://maps.app.goo.gl/TfBNAhAQtYDrkHNS6  
+**[Website](https://www.mouriya.co.jp/head/menu)**  
+**[Google Maps](https://maps.app.goo.gl/TfBNAhAQtYDrkHNS6)**  
 **Transportation:** 8-minute taxi ride or 30-minute walk from conference venue  
 
 ## Why it's exceptional

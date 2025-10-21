@@ -3,8 +3,8 @@
 **Category:** Sushi Restaurant 🍣  
 **Location:** Nakayamate district near historic foreign quarter  
 **Address:** 3-2-2 Nakayamatedori, Chuo Ward, Kobe, Hyogo 650-0004, Japan  
-**Website:** https://yoyaku-sushi-toshi.com/  
-**Maps:** https://maps.app.goo.gl/bQNEDjNq9FvFyXmo7  
+**[Website](https://yoyaku-sushi-toshi.com/)**  
+**[Google Maps](https://maps.app.goo.gl/bQNEDjNq9FvFyXmo7)**  
 **Transportation:** 12-minute taxi ride or 45-minute walk from conference venue  
 
 ## Why it's exceptional

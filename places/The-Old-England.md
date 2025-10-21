@@ -3,8 +3,8 @@
 **Category:** British-style Bar & Restaurant  
 **Location:** Nakayamate district, hillside area in historic foreign quarter  
 **Address:** 1-13-7 Nakayamatedori, Chuo Ward, Kobe, Hyogo 650-0004, Japan (Kobe Yamashita Building)  
-**Website:** https://old-england.bar/food  
-**Maps:** https://maps.app.goo.gl/xB1nfbcFHk5MJVvW6  
+**[Website](https://old-england.bar/food)**  
+**[Google Maps](https://maps.app.goo.gl/xB1nfbcFHk5MJVvW6)**  
 **Transportation:** 12-minute taxi ride or 45-minute walk from conference venue  
 
 ## Why it's exceptional

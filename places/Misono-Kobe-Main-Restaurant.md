@@ -3,8 +3,8 @@
 **Category:** Kobe Beef Restaurant (Historic Teppanyaki)  
 **Location:** Central Kobe shopping district, near major train stations  
 **Address:** 1-1-2 Shimoyamatedori, Chuo Ward, Kobe, Hyogo 650-0011, Japan (Misono Building 7F-8F)  
-**Website:** https://misono.org/  
-**Maps:** https://maps.app.goo.gl/TvRt24fDVkpYXn978  
+**[Website](https://misono.org/)**  
+**[Google Maps](https://maps.app.goo.gl/TvRt24fDVkpYXn978)**  
 **Transportation:** 8-minute taxi ride or 30-minute walk from conference venue  
 
 ## Why it's exceptional

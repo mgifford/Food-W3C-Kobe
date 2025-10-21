@@ -3,8 +3,8 @@
 **Category:** Ramen Restaurant (Artisanal Modern) 🍜  
 **Location:** Modern shopping center location with contemporary approach  
 **Address:** 2-11-27 Sannomiyacho, Chuo Ward, Kobe, Hyogo 650-0021, Japan  
-**Website:** https://tabelog.com/hyogo/A2801/A280101/28065286/  
-**Maps:** https://maps.app.goo.gl/PvHMeP3XJnQ3VdJN9  
+**[Tabelog](https://tabelog.com/hyogo/A2801/A280101/28065286/)**  
+**[Google Maps](https://maps.app.goo.gl/PvHMeP3XJnQ3VdJN9)**  
 **Transportation:** 8-minute taxi ride or 25-minute walk from conference venue  
 
 ## Why it's exceptional

@@ -3,8 +3,8 @@
 **Category:** Italian Restaurant 🍝  
 **Location:** Historic Nakayamate foreign district  
 **Address:** 1-7-20 Nakayamatedori, Chuo Ward, Kobe, Hyogo 650-0004, Japan (1F)  
-**Website:** https://yoyaku-gennaio0117.com/  
-**Maps:** https://maps.app.goo.gl/iv3spMB3kjAz3taHA  
+**[Website](https://yoyaku-gennaio0117.com/)**  
+**[Google Maps](https://maps.app.goo.gl/iv3spMB3kjAz3taHA)**  
 **Transportation:** 12-minute taxi ride or 45-minute walk from conference venue  
 
 ## Why it's exceptional

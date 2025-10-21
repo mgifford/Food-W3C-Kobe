@@ -3,8 +3,8 @@
 **Category:** Kobe Beef Restaurant  
 **Location:** Kitanagasa district, central Kobe business area  
 **Address:** 2-12-6 Kitanagasadori, Chuo Ward, Kobe, Hyogo 650-0012, Japan (K Building 2F)  
-**Website:** https://www.koubegyuu.com/koujyu/menu/131/  
-**Maps:** https://maps.app.goo.gl/88uG6HrXVJwBxcvLA  
+**[Website](https://www.koubegyuu.com/koujyu/menu/131/)**  
+**[Google Maps](https://maps.app.goo.gl/88uG6HrXVJwBxcvLA)**  
 **Transportation:** 8-minute taxi ride or 30-minute walk from conference venue  
 
 ## Why it's exceptional

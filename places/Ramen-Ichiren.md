@@ -3,8 +3,8 @@
 **Category:** Ramen Restaurant (Chuka Soba Style) 🍜  
 **Location:** Second floor in Nakayamate district - refined ramen experience  
 **Address:** 1-6-20 Nakayamatedori, Chuo Ward, Kobe, Hyogo 650-0004, Japan  
-**Website:** https://www.instagram.com/chukasoba_ichiren  
-**Maps:** https://maps.app.goo.gl/6RjjufwswsdcJt8w7  
+**[Instagram](https://www.instagram.com/chukasoba_ichiren)**  
+**[Google Maps](https://maps.app.goo.gl/6RjjufwswsdcJt8w7)**  
 **Transportation:** 12-minute taxi ride or 45-minute walk from conference venue  
 
 ## Why it's exceptional

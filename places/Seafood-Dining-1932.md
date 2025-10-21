@@ -3,8 +3,8 @@
 **Category:** Seafood Restaurant 🐟  
 **Location:** 9th floor of Centurion Hotel with harbor views  
 **Address:** 1-1-6 Minatojima, Chuo Ward, Kobe, Hyogo 650-0045, Japan (9F)  
-**Website:** https://seafood-dining-1932.com/  
-**Maps:** https://maps.app.goo.gl/zpbjvXkHWt3ZkZG99  
+**[Website](https://seafood-dining-1932.com/)**  
+**[Google Maps](https://maps.app.goo.gl/zpbjvXkHWt3ZkZG99)**  
 **Transportation:** 8-minute walk from conference venue  
 
 ## Why it's exceptional

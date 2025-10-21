@@ -3,8 +3,8 @@
 **Category:** Pizza Restaurant  
 **Location:** Kitanagasa district, central Kobe shopping area  
 **Address:** 1-31-39 Kitanagasadori, Chuo Ward, Kobe, Hyogo 650-0012, Japan  
-**Website:** https://www.instagram.com/2brotherspizza.official/  
-**Maps:** https://maps.app.goo.gl/jvFMudGJjbkmC3eq7  
+**[Instagram](https://www.instagram.com/2brotherspizza.official/)**  
+**[Google Maps](https://maps.app.goo.gl/jvFMudGJjbkmC3eq7)**  
 **Transportation:** 8-minute taxi ride or 30-minute walk from conference venue  
 
 ## Why it's exceptional

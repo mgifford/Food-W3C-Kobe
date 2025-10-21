@@ -3,7 +3,7 @@
 **Category:** Kobe Beef Restaurant  
 **Location:** Central Kobe shopping district, near major train stations  
 **Address:** 4 Chome-5-13 Kanocho, Chuo Ward, Kobe, Hyogo 650-0001, Japan  
-**Website:** https://www.bifteck.co.jp/restaurant/sannomiya-main/  
+**[Website](https://www.bifteck.co.jp/restaurant/sannomiya-main/)**  
 **Transportation:** 8-minute taxi ride or 35-minute walk from conference venue
 
 ## Why it's exceptional

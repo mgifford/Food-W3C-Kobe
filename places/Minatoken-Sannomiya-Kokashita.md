@@ -3,8 +3,8 @@
 **Category:** Ramen Restaurant (Tonkotsu Style) 🍜  
 **Location:** Underground in Kitanagasa district - authentic ramen shop atmosphere  
 **Address:** 1-31-35 Kitanagasadori, Chuo Ward, Kobe, Hyogo 650-0012, Japan  
-**Website:** https://minatokensannomiyakoukashita.foodre.jp/  
-**Maps:** https://maps.app.goo.gl/s22Dsifx4XcT8JK76  
+**[Website](https://minatokensannomiyakoukashita.foodre.jp/)**  
+**[Google Maps](https://maps.app.goo.gl/s22Dsifx4XcT8JK76)**  
 **Transportation:** 8-minute taxi ride or 30-minute walk from conference venue  
 
 ## Why it's exceptional

@@ -3,8 +3,8 @@
 **Category:** Japanese Restaurant (High-end Hotel Dining) 🍱  
 **Location:** Portopia Hotel on same island as conference center  
 **Address:** 6-10-1 Minatojima Nakamachi, Chuo Ward, Kobe, Hyogo 650-0046, Japan (South Building 4F)  
-**Website:** https://www.portopia.co.jp/restaurant/detail/saku/  
-**Maps:** https://maps.app.goo.gl/3J3nBAoiUN6pAwyh8  
+**[Website](https://www.portopia.co.jp/restaurant/detail/saku/)**  
+**[Google Maps](https://maps.app.goo.gl/3J3nBAoiUN6pAwyh8)**  
 **Transportation:** 3-minute walk from conference venue  
 
 ## Why it's exceptional

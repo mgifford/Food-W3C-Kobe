@@ -3,8 +3,8 @@
 **Category:** Hidden Sake Bar & Izakaya 🍶  
 **Location:** Hidden basement location in Kitanagasa business district  
 **Address:** 2-11-6 Kitanagasadori, Chuo Ward, Kobe, Hyogo 650-0012, Japan (Fantasy Building 1F)  
-**Website:** https://www.instagram.com/mia_kobe_sannomiya  
-**Maps:** https://maps.app.goo.gl/kJbcDuzHEwasWz2P7  
+**[Instagram](https://www.instagram.com/mia_kobe_sannomiya)**  
+**[Google Maps](https://maps.app.goo.gl/kJbcDuzHEwasWz2P7)**  
 **Transportation:** 8-minute taxi ride or 30-minute walk from conference venue  
 
 ## Why it's exceptional

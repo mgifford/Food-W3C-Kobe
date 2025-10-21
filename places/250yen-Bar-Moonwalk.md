@@ -3,8 +3,8 @@
 **Category:** Budget Bar  
 **Location:** Kitanagasa district, basement level near Ikuta Road  
 **Address:** 2-1-1 Kitanagasadori, Chuo Ward, Kobe, Hyogo 650-0012, Japan (Ishinoya Building B1)  
-**Website:** https://barmoonwalk.jp/store_info/ikuta-road/  
-**Maps:** https://maps.app.goo.gl/uhg5ybLA1Pf6h9G28  
+**[Website](https://barmoonwalk.jp/store_info/ikuta-road/)**  
+**[Google Maps](https://maps.app.goo.gl/uhg5ybLA1Pf6h9G28)**  
 **Transportation:** 8-minute taxi ride or 30-minute walk from conference venue  
 
 ## Why it's exceptional

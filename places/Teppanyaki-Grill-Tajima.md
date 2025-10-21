@@ -3,8 +3,8 @@
 **Category:** Teppanyaki Restaurant 🥩  
 **Location:** Portopia Hotel on same island as conference center  
 **Address:** 6-10-1 Minatojima Nakamachi, Chuo Ward, Kobe, Hyogo 650-0046, Japan (Main Building 2F)  
-**Website:** https://www.portopia.co.jp/restaurant/detail/tajima/  
-**Maps:** https://maps.app.goo.gl/Bmh5tgqWVo4ZVPPJ6  
+**[Website](https://www.portopia.co.jp/restaurant/detail/tajima/)**  
+**[Google Maps](https://maps.app.goo.gl/Bmh5tgqWVo4ZVPPJ6)**  
 **Transportation:** 3-minute walk from conference venue  
 
 ## Why it's exceptional

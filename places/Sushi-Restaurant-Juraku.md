@@ -3,8 +3,8 @@
 **Category:** Sushi Restaurant 🍣  
 **Location:** Central Kobe business district - accessible location  
 **Address:** 2-16-2 Shimoyamatedori, Chuo Ward, Kobe, Hyogo 650-0011, Japan  
-**Website:** https://juraku.rwop.jp/  
-**Maps:** https://maps.app.goo.gl/1wyRnr9NLtQQsMws9  
+**[Website](https://juraku.rwop.jp/)**  
+**[Google Maps](https://maps.app.goo.gl/1wyRnr9NLtQQsMws9)**  
 **Transportation:** 8-minute taxi ride or 30-minute walk from conference venue  
 
 ## Why it's exceptional

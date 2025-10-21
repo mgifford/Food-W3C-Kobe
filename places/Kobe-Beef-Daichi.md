@@ -3,8 +3,8 @@
 **Category:** Kobe Beef Restaurant  
 **Location:** Motomachi district, central shopping area near Chinatown  
 **Address:** 1-1-3 Motomachidori, Chuo Ward, Kobe, Hyogo 650-0022, Japan  
-**Website:** https://www.koubegyuu.com/daichi/  
-**Maps:** https://maps.app.goo.gl/g2GA6aDbvK8CUmrJA  
+**[Website](https://www.koubegyuu.com/daichi/)**  
+**[Google Maps](https://maps.app.goo.gl/g2GA6aDbvK8CUmrJA)**  
 **Transportation:** 10-minute taxi ride or 35-minute walk from conference venue  
 
 ## Why it's exceptional

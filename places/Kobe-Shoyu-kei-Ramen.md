@@ -3,8 +3,8 @@
 **Category:** Ramen Restaurant  
 **Location:** Kitanagasa district, central Kobe business area  
 **Address:** 4-2-20 Kitanagasadori, Chuo Ward, Kobe, Hyogo 650-0012, Japan (Kotobuki Building)  
-**Website:** https://www.instagram.com/kobe.shouyukei/  
-**Maps:** https://maps.app.goo.gl/bp1BMTbvwYFf99Tr6  
+**[Instagram](https://www.instagram.com/kobe.shouyukei/)**  
+**[Google Maps](https://maps.app.goo.gl/bp1BMTbvwYFf99Tr6)**  
 **Transportation:** 8-minute taxi ride or 30-minute walk from conference venue  
 
 ## Why it's exceptional

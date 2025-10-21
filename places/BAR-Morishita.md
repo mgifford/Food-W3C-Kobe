@@ -3,8 +3,8 @@
 **Category:** Cocktail Bar  
 **Location:** Kitanagasa district, basement level in central Kobe  
 **Address:** 1-3-8 Kitanagasadori, Chuo Ward, Kobe, Hyogo 650-0012, Japan (Gofu Building B1)  
-**Website:** https://www.instagram.com/bar.morishita/  
-**Maps:** https://maps.app.goo.gl/A42S3pE9G3NrpckPA  
+**[Instagram](https://www.instagram.com/bar.morishita/)**  
+**[Google Maps](https://maps.app.goo.gl/A42S3pE9G3NrpckPA)**  
 **Transportation:** 8-minute taxi ride or 30-minute walk from conference venue  
 
 ## Why it's exceptional
