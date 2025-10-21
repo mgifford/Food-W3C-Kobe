@@ -3,7 +3,7 @@
 **Category:** Sight/Attraction  
 **Location:** Waterfront park district, iconic red tower visible from conference center  
 **Address:** 5-5 Hatobacho, Chuo-ku, Kobe-shi, Hyogo 650-0042, Japan  
-**Transportation:** 5-minute walk from conference venue  
+**Transportation:** 10-minute taxi, 44-minute subway (Portliner), or 1-hour walk
 
 ## Why it's a must-see
 
