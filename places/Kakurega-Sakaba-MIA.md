@@ -5,7 +5,7 @@
 **Address:** 2-11-6 Kitanagasadori, Chuo Ward, Kobe, Hyogo 650-0012, Japan (Fantasy Building 1F)  
 **[Instagram](https://www.instagram.com/mia_kobe_sannomiya)**  
 **[Google Maps](https://maps.app.goo.gl/kJbcDuzHEwasWz2P7)**  
-**Transportation:** 8-minute taxi ride or 30-minute walk from conference venue  
+**Transportation:** 11-minute taxi, 39-minute subway (Portliner) or 60-minute walk
 
 ## Why it's exceptional
 
