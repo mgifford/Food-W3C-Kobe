@@ -5,7 +5,7 @@
 **Address:** 2-1-17 Shimoyamatedori, Chuo-ku, Kobe-shi, Hyogo 650-0011, Japan  
 **[Website](https://www.mouriya.co.jp/head/menu)**  
 **[Google Maps](https://maps.app.goo.gl/TfBNAhAQtYDrkHNS6)**  
-**Transportation:** 12-minute taxi, 40-minute subway (Portliner) or 30-minute walk
+**Transportation:** 12-minute taxi, 40-minute subway (Portliner) or 60-minute walk
 
 ## Why it's exceptional
 
