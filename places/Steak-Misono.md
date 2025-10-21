@@ -3,7 +3,7 @@
 **Category:** Kobe Beef Restaurant (Historic Teppanyaki)  
 **Neighborhood:** Sannomiya  
 **Address:** 1-1-2 Shimoname-dori, Chuo-ku, Kobe-shi, Hyogo 650-0011, Japan  
-**Distance from Venue:** ~15 min (Port Liner to Sannomiya + 3 min walk)  
+**Distance from Venue:** ~12-mininutes by taxi, 49-mintues subway (PortLiner), 1-hour walk  
 
 ## Why it's exceptional
 
