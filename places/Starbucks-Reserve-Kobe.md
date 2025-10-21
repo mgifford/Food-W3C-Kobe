@@ -1,9 +1,9 @@
 # Starbucks Reserve Roastery Kobe
 
 **Category:** Coffee Shop  
-**Neighborhood:** Meriken Park (near venue)  
-**Address:** 2-2 Higashikawasakicho 1-chome, Chuo-ku, Kobe-shi, Hyogo 650-0044, Japan  
-**Distance from Venue:** ~10 min walk  
+**Neighborhood:** Meriken Park
+**Address:** 2-4 Hatobacho, Chuo Ward, Kobe, Hyogo 650-0042, Japan 
+**Distance from Venue:** 8-minute taxi, 45-minute subway (Portliner), 70-minute walk  
 
 ## Why it's exceptional
 
