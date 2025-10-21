@@ -5,7 +5,7 @@
 **Address:** 1-1-3 Motomachidori, Chuo Ward, Kobe, Hyogo 650-0022, Japan  
 **[Website](https://www.koubegyuu.com/daichi/)**  
 **[Google Maps](https://maps.app.goo.gl/g2GA6aDbvK8CUmrJA)**  
-**Transportation:** 10-minute taxi ride or 35-minute walk from conference venue  
+**Transportation:** 9-minute taxi, 60-minute subway (Portliner) or 60-minute walk 
 
 ## Why it's exceptional
 
