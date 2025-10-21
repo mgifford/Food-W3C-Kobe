@@ -5,7 +5,7 @@
 **Address:** 1-3-8 Kitanagasadori, Chuo Ward, Kobe, Hyogo 650-0012, Japan (Gofu Building B1)  
 **[Instagram](https://www.instagram.com/bar.morishita/)**  
 **[Google Maps](https://maps.app.goo.gl/A42S3pE9G3NrpckPA)**  
-**Transportation:** 8-minute taxi ride or 30-minute walk from conference venue  
+**Transportation:** 12-minute taxi, 23-minute subway (Portliner) or 60-minute walk 
 
 ## Why it's exceptional
 
