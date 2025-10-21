@@ -5,7 +5,7 @@
 **Address:** 1-31-39 Kitanagasadori, Chuo Ward, Kobe, Hyogo 650-0012, Japan  
 **[Instagram](https://www.instagram.com/2brotherspizza.official/)**  
 **[Google Maps](https://maps.app.goo.gl/jvFMudGJjbkmC3eq7)**  
-**Transportation:** 8-minute taxi ride or 30-minute walk from conference venue  
+**Transportation:** 11-minute taxi, 23-minute subway (Portliner) or 60-minute walk from conference venue  
 
 ## Why it's exceptional
 
