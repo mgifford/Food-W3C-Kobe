@@ -5,7 +5,7 @@
 **Address:** 1-6-20 Nakayamatedori, Chuo Ward, Kobe, Hyogo 650-0004, Japan  
 **[Instagram](https://www.instagram.com/chukasoba_ichiren)**  
 **[Google Maps](https://maps.app.goo.gl/6RjjufwswsdcJt8w7)**  
-**Transportation:** 12-minute taxi ride or 45-minute walk from conference venue  
+**Transportation:** 10-minute taxi, 23 minute subway (Portliner) or 60-minute walk from conference venue  
 
 ## Why it's exceptional
 
