@@ -112,6 +112,11 @@ d
 Content is shared under Creative Commons Attribution 4.0 (CC BY 4.0).  
 See [LICENSE](LICENSE) for details.
 
+--
+
+## Acknowledgments
+AI may have been used to generate this.
+
 ---
 
 ## Code of Conduct
