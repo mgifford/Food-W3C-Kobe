@@ -1,6 +1,8 @@
 # Kobe Food Guide for W3C TPAC 2025
 
-Headed to Kobe, Japan for [W3C TPAC 2025](https://www.w3.org/2025/11/TPAC/) November 10-14th?  
+Headed to Kobe, Japan for [W3C TPAC 2025](https://www.w3.org/2025/11/TPAC/) November 10-14th? Please refer to the "official" [food wiki for the event](https://www.w3.org/wiki/TPAC/2025/Restaurants) which is being maintained.
+
+This is was primarily a concept before I discovered the Wiki (which was started at the same time).
 
 Here's a community-curated list of food and drink spots near the [Kobe International Conference Center](https://maps.app.goo.gl/Xb9PdN3oHECmhdiY9) at 6-9-1 Minatojima-nakamachi, Chuo-ku, Kobe.   
 
